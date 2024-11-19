@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me williamxu2013@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I enjoy playing Chopin on piano and Tarrega on guitar; and like to read books from the brightest of our species.
+- ⚡ Fun fact: I enjoy playing Chopin on piano and Tarrega on guitar; and like to read books from the brightest of our species :D
 
 <!---
 squeeshe/squeeshe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
